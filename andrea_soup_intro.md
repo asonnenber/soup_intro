@@ -24,9 +24,10 @@ All of this comes from discussions I've had about soup since my schooling at NAI
 #### Btw, a hotdog __IS__ a sandwich.
 
 
-# <mark style="background-color: teal">Mic <sup><sup>D<sup>r<sub>o<sub>p</mark>
+# <mark style="background-color: teal">Mic <sup>D<sup>r<sub>o<sub>p</mark>
 
 <sup><sup><sup><sup>Fight me.
+
 
 
 
