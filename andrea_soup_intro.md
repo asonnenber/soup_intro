@@ -1,5 +1,5 @@
 # Andrea Sonnenberg
-The OG <sub><sub><sup><sup>(Google says different. Don't listen to Google)
+The OG <sub><sub><sup>(Google says different. Don't listen to Google)
 
 ## Stuff and things about me
 I'm a taurus sun, cancer moon and pisces rising which means I'm very stubborn, beyond emotional and have my head in the clouds. 
@@ -27,4 +27,5 @@ All of this comes from discussions I've had about soup since my schooling at NAI
 # <mark style="background-color: teal">Mic <sup>D<sub>r<sub>o<sub>p</mark>
 
 <sup><sup><sup><sup>Fight me.
+
 
